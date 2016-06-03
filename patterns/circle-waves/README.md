@@ -1,2 +1,3 @@
-![Preview](doc/preview.gif)
+![Preview](doc/preview.gif)  
+
 HD version: gfycat.com/FaithfulFixedGnu
